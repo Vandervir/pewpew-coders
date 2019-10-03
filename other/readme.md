@@ -1,0 +1,1 @@
+Tutaj znajdują się kody programów zamieszczonych na płytce
